@@ -1,0 +1,2 @@
+# datorium
+kaut kada kratuve
